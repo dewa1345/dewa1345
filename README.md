@@ -1,5 +1,5 @@
-# 💫 Coding for my hobby
-Coding is more than just a profession for me—it's a passion and a hobby that fuels my creativity and innovation. From building web applications to exploring new technologies, I constantly push the boundaries of what I can achieve. Here, I share my journey, showcasing the projects I've worked on and the skills I've developed along the way.
+# 💫 Coding first. good? never
+Coding to me is how i tortured myself. though i find it enjoyable since i also had friend who is being tortured by assignment together, 
 
 
 # 📊 GitHub Stats:
