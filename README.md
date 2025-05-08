@@ -1,5 +1,5 @@
 # 💫 Coding first. good? never
-Coding to me is how i tortured myself. though i find it enjoyable since i also had friend who is being tortured by assignment together, 
+Coding to me is how i tortured myself. though i find it enjoyable since i also had friend who is being tortured by assignment together, each weeks we almost keep getting bombarded with assigment and somehow i still survive, i love playing roblox  and valorant
 
 
 # 📊 GitHub Stats:
